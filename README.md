@@ -1,3 +1,3 @@
-# My Game is Cool!
+# This. is a bucket.
 
-Make sure you give it a good description here...
+Dear God... There's more. No!
